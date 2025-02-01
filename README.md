@@ -1,1 +1,1 @@
-# Thinkpad-R61-Mac-OS-X-10.6.8-
+# Thinkpad-R61
